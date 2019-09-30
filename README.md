@@ -1,2 +1,2 @@
-# Retard
-Only for braindead autsitic people
+# no
+no here
